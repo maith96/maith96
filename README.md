@@ -14,6 +14,8 @@
   
 
 - ⚡ Fun fact:  Coding turns  me on
+  
+- Contact me: danmait6@gmail.com
 
 
 ### Web Development tools and skill set 
